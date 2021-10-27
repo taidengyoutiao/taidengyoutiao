@@ -1,1 +1,1 @@
-Hello, I am your friend April..
+Hi, I am April.
